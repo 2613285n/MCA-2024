@@ -1,2 +1,3 @@
 # \[portfolio here\]
-\[Enter your responses to Week 1, tasks 2 and 3 here\]
+\[Week 1: task 2 (WW1 music) and task 3 (Library of Congress is main and most dependable repository yet very little archival material originating from Great Britain]
+\[Week 2: task ?]
